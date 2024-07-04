@@ -15,6 +15,6 @@ leave a doodle on my strawpage!!!!!! feel free to add me on discord too ^^_^^
 
 
 <!---
-la-4w/la-4w is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+f4lin/f4lin is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
