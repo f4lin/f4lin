@@ -8,7 +8,7 @@ im socially awkward and willusually sit solo... but pls talk to me if uu wanna :
 
 HUGELY INTO DUNMESHI!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!! 
 
-leave a doodle on my strawpage!!!!!! feel free to add me on discord too ^^_^^
+leave a doodle on my strawpage (DESKTOPPPP)!!!!!! feel free to add me on discord too ^^_^^
 
 
 ![GRg1G0yWYAA5SVw](https://github.com/la-4w/la-4w/assets/174661320/76961833-24ec-491a-abc5-febc5edb2aac)
