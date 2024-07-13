@@ -11,9 +11,9 @@ im socially awkward and willusually sit solo... but pls talk to me if uu wanna :
 
 HUGELY INTO DUNMESHI!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!! 
 
-leave a doodle on my strawpage (DESKTOPPPP)!!!!!! feel free to add me on discord too ^^_^^
+leave a doodle on my strawpage (DESKTOPPPP)!!!!!! ALSO SIGN MY ATABOOK!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
 
-ALSO SIGN MY ATABOOK!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
+scroll down 4 interests ;3 wip as always..
 
 
 ![tumblr_a295349b06e9522bfba505603640fa16_508b96df_250](https://github.com/f4lin/f4lin/assets/174661320/a75e69a8-58cb-4dec-a8da-2c6b4fcd3d9d)
@@ -25,6 +25,19 @@ ALSO SIGN MY ATABOOK!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
 ⛔ - most likely playing another game, but still checkin pt to not get kicked
 
 ![GRg1G0yWYAA5SVw](https://github.com/la-4w/la-4w/assets/174661320/76961833-24ec-491a-abc5-febc5edb2aac)
+
+
+CURRENT INTERESTS! PlEASE TALK TO ME ABT AN OFTHESE
+
+- dungeon meshi
+- pokemon
+- signalis
+- um probably regretevator but im not a mega fan
+- i didnt think about what id put here
+- apex legends
+- i like eldren ring
+- gettinginto disco elysium
+- UMMM JUST ASK AND ILL PROBABLY THINK OF MORE
 
 
 <!---
