@@ -41,7 +41,11 @@ leave a doodle on my strawpage (DESKTOPPPP)!!!!!! ALSO SIGN MY ATABOOK!!!!!!!!!!
 - apex legends
 - i like eldren ring
 - gettinginto disco elysium
-- UMMM JUST ASK AND ILL PROBABLY THINK OF MORE
+- yttd
+- gundam
+- sally face
+- undertale
+- omg i genuinely have too many yu should ask me ; 3
 
    
     </details>
