@@ -13,21 +13,25 @@ HUGELY INTO DUNMESHI!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
 
 leave a doodle on my strawpage (DESKTOPPPP)!!!!!! ALSO SIGN MY ATABOOK!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
 
-scroll down 4 interests ;3 wip as always..
+![chari](https://github.com/user-attachments/assets/e8949fa9-722c-4d80-82ee-87450f751936)
 
 
-![tumblr_a295349b06e9522bfba505603640fa16_508b96df_250](https://github.com/f4lin/f4lin/assets/174661320/a75e69a8-58cb-4dec-a8da-2c6b4fcd3d9d)
-
+  <details>
+      <summary>PONYTOWN INFO!!!</summary>
+      <br>
 🟢 - im never using this one LOL
-
+    
 🟡 - offtab!!! but VERY frequently checking pt :3 feel free to interact, whisper to def get my attention
 
 ⛔ - most likely playing another game, but still checkin pt to not get kicked
 
-![GRg1G0yWYAA5SVw](https://github.com/la-4w/la-4w/assets/174661320/76961833-24ec-491a-abc5-febc5edb2aac)
+</details>
 
-
-CURRENT INTERESTS! PlEASE TALK TO ME ABT AN OFTHESE
+  <details>
+      <summary>INTERESTS!!!!!!!</summary>
+      <br>
+    
+      CURRENT INTERESTS! PlEASE TALK TO ME ABT AN OFTHESE
 
 - dungeon meshi
 - pokemon
@@ -38,6 +42,19 @@ CURRENT INTERESTS! PlEASE TALK TO ME ABT AN OFTHESE
 - i like eldren ring
 - gettinginto disco elysium
 - UMMM JUST ASK AND ILL PROBABLY THINK OF MORE
+
+   
+    </details>
+
+![chari](https://github.com/user-attachments/assets/1e908201-feab-4d1b-b389-7e34dae6b6dd)
+
+
+DNI!!!!!!!!!
+- basic dni criteria 
+- <18
+- hh/hb fans
+- dsmp
+UMM THATS ABOUT IT OTHERWISEPLEASE INTERACT 
 
 
 <!---
